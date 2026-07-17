@@ -2,5 +2,6 @@
 I am multidicciplinary disciplinary scientist including architecture, environmental planning and rural sociology
 
 - Curriculum Vitae
-- Google structure
-- Project
+- Google link
+- LinkedIn
+- ResearchGate
