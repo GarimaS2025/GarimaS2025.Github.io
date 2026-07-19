@@ -5,4 +5,4 @@ I am multidicciplinary disciplinary scientist including architecture, environmen
 - Google link
   [LinkedIn](https://www.linkedin.com/feed/)
 - ResearchGate
-  [Image](<img width="1300" height="956" alt="image" src="https://github.com/user-attachments/assets/85cb0d4e-be92-4a75-b7a7-2d1434aec35a" />)
+  ![Image](https://external-content.duckduckgo.com/iu/?u=http%3A%2F%2Fjohncblandii.com%2Fwp-content%2Fuploads%2F2011%2F07%2Fmizzouwallpaper3.png&f=1&nofb=1&ipt=980dc704d3c2376c85c13ea980b5fd6b83119694e6401d955e17b752544e1d08)
