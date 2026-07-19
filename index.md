@@ -3,5 +3,5 @@ I am multidicciplinary disciplinary scientist including architecture, environmen
 
 - Curriculum Vitae
 - Google link
-- LinkedIn
+  [LinkedIn](https://www.linkedin.com/feed/)
 - ResearchGate
